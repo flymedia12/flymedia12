@@ -65,6 +65,7 @@ Bagi pemain yang ingin menghindari risiko yang terkait dengan Mod APK tetapi tet
 **Bergabung dengan Komunitas:** Dengan bergabung dalam komunitas penggemar Black Border 2 online, Anda dapat menemukan strategi dan tips yang dapat membantu Anda maju tanpa menggunakan cheat atau mod.
 
 **Dukung Pengembang:** Jika Anda menikmati permainan ini, pertimbangkan untuk melakukan pembelian dalam game atau memberikan ulasan positif. Mendukung pengembang secara finansial memungkinkan mereka untuk terus menciptakan konten berkualitas dan pembaruan.
+
 ---
 
 ### Kesimpulan
